@@ -35,5 +35,19 @@ http://www.typography.com/blog/
 
 http://www.frerejones.com/blog/
 
+Color pickers
+
+http://pltts.me/
+
+http://theolabrothers.com/
+
+https://coolors.co/
+
+http://pokepalettes.com/
+
+
+
+
+
 
 
